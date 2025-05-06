@@ -1,0 +1,1 @@
+# stamayodesign.github.io
